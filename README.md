@@ -1,1 +1,0 @@
-# Intelig-ncia-Artificial
